@@ -1,4 +1,4 @@
-# 
+# smart bot sniper MEV ferramentas é o melhor bot sniper MEV ferramentas com análise de impacto de preço e detecção de MEV. Seguro, confiável e otimizado para estratégias MEV,
 
 
 
